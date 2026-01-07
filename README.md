@@ -1,0 +1,1 @@
+# temdetudo24h.com
